@@ -1,2 +1,0 @@
-# swee-paradise
-Sweet Paradise
